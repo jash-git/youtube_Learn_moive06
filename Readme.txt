@@ -126,7 +126,7 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=IYO6aIZxFzY&index=5&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	05.8 Awesome Smartphone Life Hacks[手機變身成行動電源,手機電動搖桿,手機架,蠟燭太陽能板手機充電,電動起子電池辯手機充電,吸塵器]
 		https://www.youtube.com/watch?v=WQQKG-wVyH8&index=7&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	06.5 Awesome Life Hacks for Zip Ties
+	06.5 Awesome Life Hacks for Zip Ties[簡易手機充電架,水壺(寶特瓶)提袋,簡易透明膠帶台]
 		https://www.youtube.com/watch?v=xE_IqOfZnIY&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=8
 	
 	
