@@ -130,8 +130,10 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=xE_IqOfZnIY&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=8
 	07.2 Awesome Life Hacks[自製腳踏車側邊防撞閃爍車燈,自製放電式點火器]
 		https://www.youtube.com/watch?v=QAZySu7d8Bs&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=9
-	08.5 Awesome Life Hacks YOU SHOULD KNOW
+	08.5 Awesome Life Hacks YOU SHOULD KNOW[簡易活動六角板手,簡易觸碰筆]
 		https://www.youtube.com/watch?v=5UB4MxqDZvs&index=10&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	09.3 Awesome Syringe Life Hacks[自動擠牙膏器,行動電源,自動擠牙膏的牙刷]
+		https://www.youtube.com/watch?v=gN02F3f-1kc&index=13&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 		
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
