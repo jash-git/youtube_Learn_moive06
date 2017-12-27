@@ -134,8 +134,10 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=5UB4MxqDZvs&index=10&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	09.3 Awesome Syringe Life Hacks[自動擠牙膏器,行動電源,自動擠牙膏的牙刷]
 		https://www.youtube.com/watch?v=gN02F3f-1kc&index=13&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	10.5 Awesome Life Hacks[]
+	10.5 Awesome Life Hacks[吹風機變吸塵器,打火機便瓦斯爐,電動起子電池便行動電源]
 		https://www.youtube.com/watch?v=BmP0dpfhKE8&index=14&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	11.9 Awesome Tricks with Matches[]
+		https://www.youtube.com/watch?v=LRRPEOhm4-c&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=16
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
