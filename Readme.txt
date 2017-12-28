@@ -136,8 +136,10 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=gN02F3f-1kc&index=13&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	10.5 Awesome Life Hacks[吹風機變吸塵器,打火機便瓦斯爐,電動起子電池便行動電源]
 		https://www.youtube.com/watch?v=BmP0dpfhKE8&index=14&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	11.9 Awesome Tricks with Matches[]
+	11.9 Awesome Tricks with Matches[火柴自製簡易生火器,多種攻擊性武器(小孩不要學)]
 		https://www.youtube.com/watch?v=LRRPEOhm4-c&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=16
+	12.3 Awesome Life Hacks YOU SHOULD KNOW
+		https://www.youtube.com/watch?v=8H6PwoJg2jI&index=17&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
