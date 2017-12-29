@@ -138,8 +138,10 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=BmP0dpfhKE8&index=14&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	11.9 Awesome Tricks with Matches[火柴自製簡易生火器,多種攻擊性武器(小孩不要學)]
 		https://www.youtube.com/watch?v=LRRPEOhm4-c&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=16
-	12.3 Awesome Life Hacks YOU SHOULD KNOW
+	12.3 Awesome Life Hacks YOU SHOULD KNOW[自製捲尺,自動擠牙膏的牙刷]
 		https://www.youtube.com/watch?v=8H6PwoJg2jI&index=17&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	13.	7 Awesome Life Hacks for Drill Machine
+		https://www.youtube.com/watch?v=hpjLn0M21YM&index=19&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
