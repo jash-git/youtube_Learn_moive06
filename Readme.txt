@@ -140,8 +140,10 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=LRRPEOhm4-c&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=16
 	12.3 Awesome Life Hacks YOU SHOULD KNOW[自製捲尺,自動擠牙膏的牙刷]
 		https://www.youtube.com/watch?v=8H6PwoJg2jI&index=17&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	13.	7 Awesome Life Hacks for Drill Machine
+	13.7 Awesome Life Hacks for Drill Machine[牙刷頭變玻璃罐內壁電動清潔器,寶特瓶+電鑽=電風扇,叉子變身打蛋器,電動削鉛筆機,電動烙鐵保養]
 		https://www.youtube.com/watch?v=hpjLn0M21YM&index=19&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	14.7 Life hacks for aluminium foil[利用錫箔紙清除熱熔槍的髒汙,,,,,,]
+		https://www.youtube.com/watch?v=nIbYpfaD0Ho&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=22
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
