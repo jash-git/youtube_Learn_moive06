@@ -142,8 +142,16 @@ LIFE HACKS 1~157
 		https://www.youtube.com/watch?v=8H6PwoJg2jI&index=17&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
 	13.7 Awesome Life Hacks for Drill Machine[牙刷頭變玻璃罐內壁電動清潔器,寶特瓶+電鑽=電風扇,叉子變身打蛋器,電動削鉛筆機,電動烙鐵保養]
 		https://www.youtube.com/watch?v=hpjLn0M21YM&index=19&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
-	14.7 Life hacks for aluminium foil[利用錫箔紙清除熱熔槍的髒汙,,,,,,]
+	14.7 Life hacks for aluminium foil[利用錫箔紙清除熱熔槍的髒汙,利用錫箔紙讓不同電池在電池盒一起使用,火柴沖天炮,利用錫箔紙自製手機電動搖桿,鉛筆便觸碰筆]
 		https://www.youtube.com/watch?v=nIbYpfaD0Ho&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=22
+	15.2 AWESOME LIFE HACKS
+		https://www.youtube.com/watch?v=EcJWfvq1FLI&index=24&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW
+	16.2 Awesome Life Hacks | Brilliant ideas	
+		https://www.youtube.com/watch?v=jM0nWSSV2gA&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=25	
+	17.3 AWESOME LIFE HACKS
+		https://www.youtube.com/watch?v=XNYOS8pwk9Y&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=26
+	18.3 Awesome Life Hacks YOU SHOULD KNOW[戶外安全點火器(電池+鐵絲/鎢絲)]
+		https://www.youtube.com/watch?v=sMLZ3Ws9R88&list=PLRVS8TSGNJ2CZ8JLCIrISNU0zgE3KJRFW&index=27
 	
 https://www.youtube.com/watch?v=kVQnsGIUEVE&list=PL27Hm5LQ5l87VcOg_bEwqH0qgKOJyMI59
 
